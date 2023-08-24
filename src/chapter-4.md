@@ -1,5 +1,3 @@
-Chapter 4: Building a Supportive Workplace Environment
-======================================================
 
 Building a supportive workplace environment is essential for promoting professional development and creating a positive workplace culture. In this chapter, we will explore strategies for building a supportive workplace environment, creating a culture of learning and growth, and encouraging collaboration and knowledge sharing.
 

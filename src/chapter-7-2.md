@@ -1,5 +1,3 @@
-Strategies for Promoting Work-Life Balance
-===================================================================================
 
 Promoting work-life balance is essential for supporting professional development in the workplace. In this chapter, we will explore strategies for promoting work-life balance.
 

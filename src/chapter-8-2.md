@@ -1,5 +1,3 @@
-Analyzing Employee Performance and Engagement Data
-=========================================================================================================
 
 Analyzing employee performance and engagement data is an important part of measuring the success of professional development initiatives. In this chapter, we will explore how analyzing employee performance and engagement data can be used to measure the impact of professional development initiatives.
 

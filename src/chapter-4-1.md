@@ -1,5 +1,3 @@
-Strategies for Building a Supportive Workplace Environment
-==================================================================================================================
 
 Creating a supportive workplace environment is essential for promoting professional development and employee growth. In this chapter, we will explore strategies for building a supportive workplace environment.
 

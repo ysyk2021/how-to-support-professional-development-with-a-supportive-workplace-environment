@@ -1,5 +1,3 @@
-Leveraging Technology for Remote Development
-=================================================================================================================
 
 Supporting professional development for remote employees requires leveraging technology to create effective learning opportunities. In this chapter, we will explore strategies for leveraging technology for remote development.
 

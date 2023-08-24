@@ -1,5 +1,3 @@
-Benefits of a Supportive Workplace Environment for Professional Development
-====================================================================================================
 
 Creating a supportive workplace environment that fosters professional development is essential for the success of both employees and organizations. In this chapter, we will explore the benefits of a supportive workplace environment for professional development.
 

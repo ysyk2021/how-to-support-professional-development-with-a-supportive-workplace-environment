@@ -1,5 +1,3 @@
-Chapter 6: Mentoring and Coaching Programs
-==========================================
 
 Mentoring and coaching programs are essential components of professional development that provide employees with guidance, support, and feedback. In this chapter, we will explore the role of mentoring and coaching in professional development, strategies for establishing effective mentoring and coaching programs, and best practices for mentorship and coaching relationships.
 

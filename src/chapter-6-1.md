@@ -1,5 +1,3 @@
-The Role of Mentoring and Coaching in Professional Development
-==========================================================================================================
 
 Mentoring and coaching programs are essential for supporting professional development in the workplace. In this chapter, we will explore the role of mentoring and coaching in professional development.
 

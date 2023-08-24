@@ -1,4 +1,4 @@
-# Introduction
+
 
 Supporting professional development is essential for fostering employee growth and success in the workplace. That's where "How to Support Professional Development with a Supportive Workplace Environment" comes in.
 

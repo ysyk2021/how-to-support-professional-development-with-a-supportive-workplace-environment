@@ -1,5 +1,3 @@
-Types of Professional Development Programs
-=============================================================================================
 
 Understanding professional development is an essential component of creating a supportive workplace environment. In this chapter, we will explore the types of professional development programs that can support employee growth and development.
 

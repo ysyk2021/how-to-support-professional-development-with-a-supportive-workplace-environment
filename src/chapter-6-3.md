@@ -1,5 +1,3 @@
-Best Practices for Mentorship and Coaching Relationships
-====================================================================================================
 
 Mentoring and coaching programs can be an effective way to support professional development in the workplace. In this chapter, we will explore best practices for mentorship and coaching relationships.
 

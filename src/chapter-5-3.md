@@ -1,5 +1,3 @@
-Encouraging Continuous Learning
-======================================================================================
 
 Providing ongoing training and development opportunities is essential for supporting professional development in the workplace. In this chapter, we will explore strategies for encouraging continuous learning.
 

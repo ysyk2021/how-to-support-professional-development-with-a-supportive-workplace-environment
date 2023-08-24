@@ -1,5 +1,3 @@
-Strategies for Establishing Effective Mentoring and Coaching Programs
-=================================================================================================================
 
 Establishing effective mentoring and coaching programs is essential for supporting professional development in the workplace. In this chapter, we will explore strategies for establishing effective mentoring and coaching programs.
 

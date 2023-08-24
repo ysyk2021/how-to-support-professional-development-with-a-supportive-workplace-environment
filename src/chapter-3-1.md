@@ -1,5 +1,3 @@
-Methods for Assessing Employee Development Needs
-=================================================================================================
 
 Assessing employee development needs is an essential component of creating a supportive workplace environment. In this chapter, we will explore methods for assessing employee development needs.
 

@@ -1,5 +1,3 @@
-Strategies for Supporting Remote Employee Development
-==========================================================================================================================
 
 Supporting professional development for remote employees requires a variety of strategies to ensure that employees have access to the resources and support they need. In this chapter, we will explore strategies for supporting remote employee development.
 

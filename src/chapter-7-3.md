@@ -1,5 +1,3 @@
-Offering Flexible Work Arrangements
-============================================================================
 
 Offering flexible work arrangements is an effective way to address work-life balance and support professional development in the workplace. In this chapter, we will explore strategies for offering flexible work arrangements.
 

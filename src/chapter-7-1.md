@@ -1,5 +1,3 @@
-The Importance of Work-Life Balance
-============================================================================
 
 Addressing work-life balance is an essential component of creating a supportive workplace environment. In this chapter, we will explore the importance of work-life balance and strategies for promoting it in the workplace.
 

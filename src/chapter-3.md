@@ -1,5 +1,3 @@
-Chapter 3: Assessing Employee Development Needs
-===============================================
 
 Assessing employee development needs is essential for creating effective professional development initiatives that meet the needs of employees and the organization. In this chapter, we will explore methods for assessing employee development needs, identifying skills gaps and career aspirations, and developing an individualized development plan.
 
