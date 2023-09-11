@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Providing Ongoing Training
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective ongoing training is a cornerstone of professional development in a supportive workplace environment. In this chapter, we will explore key strategies that organizations can employ to consistently offer and enhance training opportunities for their employees.
 

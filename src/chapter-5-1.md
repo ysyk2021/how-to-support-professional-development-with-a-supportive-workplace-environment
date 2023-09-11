@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Ongoing Training and Development
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the critical role that ongoing training and development play in creating a supportive workplace environment. We will explore how continuous learning benefits both employees and organizations, and we'll discuss various strategies for implementing effective training and development programs.
 

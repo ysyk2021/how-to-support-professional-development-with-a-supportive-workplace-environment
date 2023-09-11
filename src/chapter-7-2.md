@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Promoting Work-Life Balance
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies and techniques for promoting work-life balance within the context of supporting professional development in a supportive workplace environment. Achieving a healthy work-life balance is essential for employee well-being, productivity, and long-term career success. When employees feel that their work and personal lives are in harmony, they are more likely to be engaged, motivated, and committed to their professional growth.
 

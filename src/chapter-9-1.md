@@ -1,5 +1,4 @@
-Chapter 6: Challenges of Remote Employee Development
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the unique challenges associated with remote employee development. As remote work becomes increasingly prevalent, understanding and addressing these challenges is crucial to ensuring that professional development remains a key priority in a supportive workplace environment.
 

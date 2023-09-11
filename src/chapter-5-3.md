@@ -1,5 +1,4 @@
-Chapter 4: Encouraging Continuous Learning
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous learning is a fundamental element of professional development within a supportive workplace environment. In this chapter, we will explore strategies and practices that encourage employees to embrace continuous learning as a lifelong journey.
 

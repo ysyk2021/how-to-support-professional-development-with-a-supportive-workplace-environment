@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Building a Supportive Workplace Environment
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for creating and fostering a supportive workplace environment that encourages professional development, engagement, and overall well-being among employees. A supportive workplace is essential for nurturing talent, promoting job satisfaction, and achieving organizational success.
 

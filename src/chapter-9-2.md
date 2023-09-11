@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Supporting Remote Employee Development
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for supporting remote employee development. As remote work continues to shape the modern workplace, it's essential for organizations to adapt and provide opportunities for professional growth and learning in a remote setting.
 

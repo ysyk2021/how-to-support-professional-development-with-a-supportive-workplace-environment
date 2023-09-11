@@ -1,5 +1,4 @@
-Chapter 3: Types of Professional Development Programs
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Professional development is a critical aspect of fostering growth and success in any organization. In this chapter, we will explore various types of professional development programs that can be implemented in a supportive workplace environment. These programs are designed to enhance the skills, knowledge, and capabilities of employees, ultimately benefiting both the individual and the organization as a whole.
 

@@ -1,5 +1,4 @@
-Chapter 5: Creating a Culture of Learning and Growth
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the pivotal concept of fostering a culture of learning and growth within a supportive workplace environment. Such a culture is instrumental in enabling individuals and organizations to thrive in today's dynamic and competitive landscape.
 

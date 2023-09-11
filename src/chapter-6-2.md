@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Establishing Effective Mentoring and Coaching Programs
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the essential strategies for establishing effective mentoring and coaching programs within your workplace environment. These programs play a crucial role in supporting professional development and fostering a culture of growth and learning among employees.
 

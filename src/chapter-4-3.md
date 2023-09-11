@@ -1,5 +1,4 @@
-Chapter 6: Encouraging Collaboration and Knowledge Sharing
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of encouraging collaboration and knowledge sharing within a supportive workplace environment. Collaboration and knowledge sharing are key drivers of professional development and organizational growth.
 

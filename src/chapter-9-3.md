@@ -1,5 +1,4 @@
-Chapter 8: Leveraging Technology for Remote Development
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the innovative ways in which technology can be harnessed to support remote professional development within a supportive workplace environment. Technology plays a pivotal role in bridging the physical gaps and enhancing the accessibility of learning and growth opportunities for remote employees.
 
